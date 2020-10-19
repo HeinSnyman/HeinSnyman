@@ -1,4 +1,4 @@
-### Hi there 👋
+### Yes, It’s me in the picture.
 
 <!--
 **HeinSnyman/HeinSnyman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
